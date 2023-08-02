@@ -1,0 +1,2 @@
+# newsn
+friend
